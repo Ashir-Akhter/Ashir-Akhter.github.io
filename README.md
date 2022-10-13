@@ -1,6 +1,6 @@
 # Hey There
 
-I'm Preet Makani
+I'm Ashir Akhter
 
 ## My Personal Porfolio 
 
